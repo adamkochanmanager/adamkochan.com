@@ -36,4 +36,4 @@ hit the spot.
 
 **Favorite Songs**: Parachute, Flash Back 0217, 千年の雨の終わりに
 
-**One Recommendation**: If you like shoegaze? Probably 千年の雨の終わりに. If not? Submarine
+**One Recommendation**: If you like shoegaze? Probably 千年の雨の終わりに. If not? Submarine no
