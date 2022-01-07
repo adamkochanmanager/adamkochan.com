@@ -4,45 +4,43 @@ tags: ["music"]
 date: 2022-01-04
 ---
 
-Howdy folks! No time to start posting things on the blog like the new year.
+Hey there, so I had this idea for a New Years Resolution, which is to listen to a new album every single day.
 
-A friend recently suggested something I love the idea of - listening to an
-album you haven't listened to before, every day for a month. I'm starting a
-few days late into January, but still excited to get started with this.
+I have a few other friends doing this as well:
+- Reno is doing it over at [his own blog](www.renodubois.com)
+- Robert is over [here on Notion](https://robertlandis.notion.site/)
 
-We'll see how the frequency of these posts keeps up, but I'm planning on
-posting my thoughts on the albums I listen to here, so prepare for amateur
-music journalism.
+<div style = "display: block; margin: auto; width: 1000px;">
 
-With that said, here's the list of albums I've got queued up, in no particular order:
-
+![album cover for mikgazer vol. 1](/images/januaryalbums.jpg#centerbig)
+</div>
 _Note: I'll update these with the link to the review as they get listened to!_
 
-- alt-J - An Awesome Wave
-- Portugal. The Man - Waiter: "You Vultures!"
-- Fiona Apple - Fetch The Bolt Cutters
-- Remi Wolf - Juno
-- Kevin Abstract - ARIZONA BABY
-- Spellling - The Turning Wheel
-- Prince - Purple Rain
-- Spoon - They Want My Soul
-- mewithoutYou - It's All Crazy! It's All False! It's All A Dream! It's Alright
-- The New Pornographers - Challengers
-- Radiohead - In Rainbows
-- Broken Social Scene - You Forgot It In People
-- of Montreal - The Sunlandic Twins
-- Björk - Homogenic
-- Black Country, New Road - [For the first time](/posts/bcnr-for-the-first-time-review)
-- Brave Little Abacus - Just Got Back from the Discomfort We're Alright
-- BLACK MIDI - schlagenheim
-- Kero Kero Bonito - Time 'n' Place
-- IDLES - Joy as an Act of Resistance.
-- Bomb the Music Industry! - Vacation
-- wowaka - UNHAPPY REFRAIN
-- Alvvays - Antisocialites
-- various artists - [mikgazer vol. 1 (compilation)](/posts/mikgazer-vol-1-review)
-- Mid-Air Thief (공중도둑) - Gongjoong Doduk (공중도덕)
-- K O T O - PLATONICPLANET
-- Haru Nemuri - harutosyura
+- Injury Reserve - By the Time I Get to Phoenix
+- Death Grips - The Money Store
+- Sufjan Stevens - Carrie & Lowell
+- LCD Soundsystem- This is Happening
 - King Gizzard & The Lizard Wizard - Nonagon Infinity
-- My Bloody Valentine - m b v
+- Bon Iver - 22, A Million
+- [Parquet Courts - Wide Awake!](/posts/wide-awake-review)
+- DJ Sabrina The Teenage DJ - Charmed
+- [Lorde - Melodrama](/posts/melodrama-review)
+- The National - Sleep Well Beast
+- The War on Drugs - Holding On
+- George Clanton - Slide
+- LOONA - Max & Match
+- Roisin Murphy - Roisin Machine
+- The Comet is Coming - Trust In The Lifeforce of the Deep Mystery
+- Low - Quorum / Dancing and Blood / Fly
+- Grizzly Bear - Shields
+- Weezer - Weezer (The White Album)
+- BTS - The Most Beautiful Moment in Life: Young Forever
+- D'Angelo - Black Messiah
+- tricot - Jodeki (上出来)
+- BADBADNOTGOOD - Talk Memory
+- Charli XCX - How I'm Feeling Now
+- Gorillaz - Plastic Beach
+- Todd Terje - It's Album Time
+- Fiona Apple - The Idler Wheel Is Wiser Than the Driver of the Screw and Whipping Cords Will Serve You More Than Ropes Will Ever Do
+- Jeff Rosenstock - SKA Dream
+- Run The Jewels - Run The Jewels 2
