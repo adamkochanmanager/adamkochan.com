@@ -9,7 +9,7 @@ _If you wanna go back to the January 2022 Hub
 
 
 
-![album cover for mikgazer vol. 1](/images/Wide_Awake_Parquet_Courts.jpg#center)
+![album cover for mikgazer vol. 1](/images/Wide_Awake_Parquet_Courts.jpg#album)
 
 *“If you are looking to head bang to smart, political punk this is the album for you”*
 ---

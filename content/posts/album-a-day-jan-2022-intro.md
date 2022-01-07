@@ -10,10 +10,9 @@ I have a few other friends doing this as well:
 - Reno is doing it over at [his own blog](www.renodubois.com)
 - Robert is over [here on Notion](https://robertlandis.notion.site/)
 
-<div style = "display: block; margin: auto; width: 1000px;">
 
 ![album cover for mikgazer vol. 1](/images/januaryalbums.jpg#centerbig)
-</div>
+
 _Note: I'll update these with the link to the review as they get listened to!_
 
 - Injury Reserve - By the Time I Get to Phoenix

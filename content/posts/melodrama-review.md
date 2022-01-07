@@ -9,7 +9,7 @@ _If you wanna go back to the January 2022 Hub
 
 
 
-![album cover for mikgazer vol. 1](/images/Lorde_-_Melodrama.jpg#center)
+![album cover for mikgazer vol. 1](/images/Lorde_-_Melodrama.jpg#album)
 
 *"Man who thought Lorde was a 1-Hit wonder SHOCKED when the Whole Album Bops”*
 ---
@@ -26,7 +26,7 @@ _If you wanna go back to the January 2022 Hub
 
 Ok Lorde, I’m sorry that’s on me, here I was thinking you were a 1-hit wonder and I hated that hit (Royals is Overhyped, fite me), this album showed me I was completely wrong. Lorde please accept my apology below.
 
-![Lorde Apology](/images/Lorde-App-2.jpg#center)
+![Lorde Apology](/images/Lorde-App-2.jpg#album)
 
 Let me get my only criticism out of the way first, This might be a hot take….. Lorde’s voice….. is just “good” it never blew me away, I was way more impressed with how it was layered and mixed rather than her voice. When you strip away all the “production” her voice is still solid but doesn’t WOW me.
 
