@@ -20,7 +20,7 @@ _If you wanna go back to the January 2022 Hub
 
 **Other Favs**: Holding On, Strangest Thing, In Chains
 
-**Recommended if You Like**: Bruce Springstien, Guitars
+**Recommended if You Like**: Bruce Springsteen, Guitars
 
 ---
 
