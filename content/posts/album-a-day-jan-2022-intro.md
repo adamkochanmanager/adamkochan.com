@@ -18,7 +18,7 @@ _Note: I'll update these with the link to the review as they get listened to!_
 - DJ Sabrina The Teenage DJ - Charmed
 - [Lorde - Melodrama](/posts/melodrama-review)
 - The National - Sleep Well Beast
-- The War on Drugs - Holding On
+- [The War on Drugs - A Deeper Understanding](/posts/a-deeper-understanding-review)
 - George Clanton - Slide
 - LOONA - Max & Match
 - Roisin Murphy - Roisin Machine

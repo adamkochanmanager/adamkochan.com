@@ -20,7 +20,7 @@ _If you wanna go back to the January 2022 Hub
 
 **Other Favs**: Homemade Dynamite, The Lourve, Liability, Hard Feels, Supercut
 
-**Recomended if You Like**: Carly Rae Jepsen, Bleachers, Literally any Jack Antonoff Produced Album Ever
+**Recommended  if You Like**: Carly Rae Jepsen, Bleachers, Literally any Jack Antonoff Produced Album Ever
 
 ---
 

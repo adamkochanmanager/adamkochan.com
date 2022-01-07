@@ -20,7 +20,7 @@ _If you wanna go back to the January 2022 Hub
 
 **Other Favs**: Tenderness, FreeBird II, Before The Water Gets Too High, Wide Awake
 
-**Recomended if You Like**: The Strokes, Franz Ferdinand, The Clash, "Harder" LCD Soundsystem
+**Recommended if You Like**: The Strokes, Franz Ferdinand, The Clash, "Harder" LCD Soundsystem
 
 ---
 
