@@ -1,7 +1,7 @@
 ---
 title: "Album a Day Jan 2021"
 tags: ["music"]
-date: 2022-01-05
+date: 2022-01-04
 ---
 
 Howdy folks! No time to start posting things on the blog like the new year.
