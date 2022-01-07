@@ -1,5 +1,5 @@
 ---
-title: "Album a Day Jan 2021"
+title: "Album a Day Jan 2022"
 tags: ["music"]
 date: 2022-01-04
 ---
