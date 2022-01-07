@@ -1,0 +1,6 @@
+baseURL = 'https://www.renodubois.com'
+languageCode = 'en-us'
+title = 'Reno DuBois'
+contentdir = 'content'
+canonifyurls = true
+author = 'Reno DuBois'
