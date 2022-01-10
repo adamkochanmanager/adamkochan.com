@@ -34,5 +34,5 @@ _Note: I'll update these with the link to the review as they get listened to!_
 - Gorillaz - Plastic Beach
 - Todd Terje - It's Album Time
 - Fiona Apple - The Idler Wheel Is Wiser Than the Driver of the Screw and Whipping Cords Will Serve You More Than Ropes Will Ever Do
-- Jeff Rosenstock - SKA Dream
+- [Jeff Rosenstock - SKA Dream](/posts/ska-dream-review)
 - [Run The Jewels - Run The Jewels 2](/posts/rtj2-review)
