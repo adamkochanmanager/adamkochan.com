@@ -11,7 +11,7 @@ _If you wanna go back to the January 2022 Hub
 
 ![album cover for mikgazer vol. 1](/images/RunTheJewelsRTJ2.jpg#album)
 
-*“From start to finish, this is a bold and brash album that takes no breaks never let’s up, with amazing production and flows”*
+*“From start to finish, this is a bold and brash album that takes no breaks, with amazing production and flows”*
 ---
 
 **Score**: 8/10
