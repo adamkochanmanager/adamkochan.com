@@ -22,7 +22,7 @@ _Note: I'll update these with the link to the review as they get listened to!_
 - George Clanton - Slide
 - LOONA - Max & Match
 - Roisin Murphy - Roisin Machine
-- The Comet is Coming - Trust In The Lifeforce of the Deep Mystery
+- [The Comet is Coming - Trust In The Lifeforce of the Deep Mystery](/posts/titlotdm-review)
 - Low - Quorum / Dancing and Blood / Fly
 - Grizzly Bear - Shields
 - Weezer - Weezer (The White Album)
