@@ -1,7 +1,7 @@
 ---
 title: "'The Most Beautiful Moment in Life: Young Forever' - BTS Review"
 tags: ["music"]
-date: 2022-01-10
+date: 2022-01-11
 ---
 
 _If you wanna go back to the January 2022 Hub
