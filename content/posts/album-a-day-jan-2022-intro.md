@@ -26,7 +26,7 @@ _Note: I'll update these with the link to the review as they get listened to!_
 - Low - Quorum / Dancing and Blood / Fly
 - Grizzly Bear - Shields
 - Weezer - Weezer (The White Album)
-- [BTS - The Most Beautiful Moment in Life: Young Forever](bts-album-dont-hurt-me-army-review.md)
+- [BTS - The Most Beautiful Moment in Life: Young Forever](/posts/bts-album-dont-hurt-me-army-review)
 - D'Angelo - Black Messiah
 - tricot - Jodeki (上出来)
 - BADBADNOTGOOD - Talk Memory
