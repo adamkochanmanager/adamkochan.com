@@ -32,9 +32,9 @@ To be quite honest, I had never given a full album of BTS a chance, my only expo
 
 1st off this album has a little something for everyone.
 
-Looking for Bangers: Dope, Silver Spoon
-Looking for Jams: Ma City, House of Cards
-Looking for Bops: Run, I Need U
+- Looking for Bangers: Dope, Silver Spoon
+- Looking for Jams: Ma City, House of Cards
+- Looking for Bops: Run, I Need U
 
 The production on this album spans so many different styles but throughout out it pulls great from its Western Rap/Pop influences. Songs on here fell so alive and upbeat and just overall "fun". House of Cards felt like it could fit right along side any number of Weeknd's hits, while Silver Spoon and Dope feel like they can go along side some of Brockhampton's "Boyband" style Rap.
 
