@@ -25,7 +25,7 @@ _Note: I'll update these with the link to the review as they get listened to!_
 - [The Comet is Coming - Trust In The Lifeforce of the Deep Mystery](/posts/titlotdm-review)
 - Low - Quorum / Dancing and Blood / Fly
 - Grizzly Bear - Shields
-- Weezer - Weezer (The White Album)
+- [Weezer - Weezer (The White Album)] (/posts/weezer-white-album-review)
 - [BTS - The Most Beautiful Moment in Life: Young Forever](/posts/bts-album-dont-hurt-me-army-review)
 - D'Angelo - Black Messiah
 - tricot - Jodeki (上出来)
