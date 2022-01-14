@@ -9,7 +9,7 @@ _If you wanna go back to the January 2022 Hub
 
 
 
-![album cover for mikgazer vol. 1](/images/Weezer-White-Album.jpg#album)
+![album cover for mikgazer vol. 1](/images/Wheezer-White-Album.jpg#album)
 
 *“A Pretty typical pop punk album that sounds like... a typical pop punk album”*
 ---
@@ -24,7 +24,7 @@ _If you wanna go back to the January 2022 Hub
 
 ---
 
-Featuring another band that probably needs no introduction, today was Weezer’s – Wezzer (The White Album). Another band I have never really given a full album listen to. I have only known Weezer as that “dorky, but kinda cool” that people either love or hate. So given a full album a listen left me with….. mixed thoughts. 
+Featuring another band that probably needs no introduction, today was Weezer’s – Weezer (The White Album). Another band I have never really given a full album listen to. I have only known Weezer as that “dorky, but kinda cool” that people either love or hate. So given a full album a listen left me with….. mixed thoughts. 
 
 1st lets start off with the longevity, this is Weezer’s 11th album, which is impressive that they still have some bops/grooves in them. I loved the pop punk energy of this album a long with Rivers Cuemo’s voice which sounds just as distinct as the band’s past hits. The Guitar and Drums absolutely stood out on this album making each song sound full and lively. There is also a twinge of “beach rock” layered throughout These songs really do feel like they were made to be listened while driving down Highway 101 or hanging out around a fire at the beach.
 
