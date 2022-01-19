@@ -1,5 +1,5 @@
 ---
-title: "'A Deeper Understaning' - The War on Drugs Review"
+title: "'A Deeper Understanding' - The War on Drugs Review"
 tags: ["music"]
 date: 2022-01-07
 ---
