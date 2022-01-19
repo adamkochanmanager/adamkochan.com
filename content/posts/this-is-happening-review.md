@@ -1,5 +1,5 @@
 ---
-title: "'A Deeper Understaning' - The War on Drugs Review"
+title: "'This Is Happening' - LCD Soundsystem Review"
 tags: ["music"]
 date: 2022-01-14
 ---
