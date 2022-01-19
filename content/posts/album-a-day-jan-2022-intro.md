@@ -11,7 +11,7 @@ _Note: I'll update these with the link to the review as they get listened to!_
 - Injury Reserve - By the Time I Get to Phoenix
 - Death Grips - The Money Store
 - Sufjan Stevens - Carrie & Lowell
-- LCD Soundsystem - This is Happening
+- [LCD Soundsystem - This is Happening](/posts/this-is-happening-review)
 - King Gizzard & The Lizard Wizard - Nonagon Infinity
 - Bon Iver - 22, A Million
 - [Parquet Courts - Wide Awake!](/posts/wide-awake-review)
