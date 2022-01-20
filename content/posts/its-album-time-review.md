@@ -1,5 +1,5 @@
 ---
-title: "It's Album Time' - Todd Terje Review"
+title: "'It's Album Time' - Todd Terje Review"
 tags: ["music"]
 date: 2022-01-13
 ---

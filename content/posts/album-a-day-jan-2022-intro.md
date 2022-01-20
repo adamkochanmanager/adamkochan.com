@@ -13,7 +13,7 @@ _Note: I'll update these with the link to the review as they get listened to!_
 - Sufjan Stevens - Carrie & Lowell
 - [LCD Soundsystem - This is Happening](/posts/this-is-happening-review)
 - King Gizzard & The Lizard Wizard - Nonagon Infinity
-- Bon Iver - 22, A Million
+- [Bon Iver - 22, A Million](/posts/twenty-two-million)
 - [Parquet Courts - Wide Awake!](/posts/wide-awake-review)
 - DJ Sabrina The Teenage DJ - Charmed
 - [Lorde - Melodrama](/posts/melodrama-review)
