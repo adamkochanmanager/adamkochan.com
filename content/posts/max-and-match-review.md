@@ -1,8 +1,7 @@
 ---
 title: "'Max & Match' - Loona (Odd Eye Circle)"
 tags: ["music"]
-date: 2022-01-19
-draft: true
+date: 2022-01-16
 ---
 
 _If you wanna go back to the January 2022 Hub
@@ -10,25 +9,29 @@ _If you wanna go back to the January 2022 Hub
 
 
 
-![album cover for mikgazer vol. 1](/images/A_Deeper_Understanding.jpg#album)
+![album cover for mikgazer vol. 1](/images/loona-album.jpg#album)
 
-*"Some of the BEST instrumentation I have ever heard of all time, some of the lyrics I have heard of all time”*
+*"Can you have a bias if you think all the girls in the group are great?"*
 ---
 
 **Score**: 8/10
 
 **Stand-Out Song**: 'Sweet Crazy Love'
 
-**Other Favs**: Holding On, Strangest Thing, In Chains
+**Other Favs**: 'Girl Front', 'Chaotic', 'ODD Front'
 
-**Recommended if You Like**: Bruce Springsteen, Guitars
+**Recommended if You Like**: TWICE, Blackpink, "5th Harmony" I guess
 
 ---
 
-I'm really in between two minds on this album, the musicality is actually some of the best I have heard. ever. But, when the focus is on the lyrics, there leaves a lot to be desired. 
+Well that was such an enjoyable, short, concise album.
 
-Lets talk about this sound though. I mean.... Holy Shit... this album sounds gorgeous. Multiple times in the first 4 songs I was just muttering "Oh Shit" to myself as these guitars, pianos, hell even a freaking harmonica! The instrumentation completely rule the sound scape. The outros of "Pain" and "Strangest Thing" are actually jaw dropping, please please please stop reading this review right now and just listen to those two songs, i actually mean it, I can barely put into words why these work so well, other than the fact I felt completely enveloped by these songs.
+This being a subgroup of Loona a band I already like (go listen to 'Star') allowed me to spend the album getting to know these three voices in particular. Kim Lip, JinSoul and Choerry all kill it and their voices sound amazing together, whether its layering or them trading off on the same song/verse. I think the voice that stands out for me the most would be JinSoul, who mixes great on both ballads and the more rap parts as well.
 
-Ok are you back, do you see what I am talking about?!?!??! I mean gosh, its just criminal that such basic lyrics and lack of substance I felt from Adam Granduciel (the Lead Vocalist). As an "instrument", the vocals sound just as good as the rest of the album, so well mixed, so punchy when they need to be.... but what he is talking about and saying, leaves a lot to be desired. It does actually seem like he just took "lyrics about nature" and "lyrics about love" and just went with his first draft on some of these songs.
+This album sounds amazing, and every song seems to touch on a different "style" of pop, you have your "Arianna R&B" hit in 'Chaotic', your "bubblegum bop" in 'ODD Front' and the blend of "pop and rap" in 'Girl Front'. If you are a fan of any big mainstream pop artist right now you will find a song that you will love on this album.
 
-When the spotlight steps away from said lyrics and the band just lets the instrumentation do its thing, it so powerful. This is seriously up there with "To Pimp a Butterfly" and "Random Access Memories" from a production point of view. Adam Granduciel is also the producer and every single choice he made from behind the board is KILLER. He definitely made choices in front of the mic.
+Another thing I loved was the two different versions of 'Front'. Where the 'Girl Front' is bombastic and bit more upbeat, the song just seems to flow from passage to passage so seamlessly, and the chorus is absolutely killer. Then 'Odd Front' comes a long and focus more on the vocals with a "more laid back" production. While the lyrics are the same between the two the difference in the styles it a treat when either of these songs come up!
+
+The album is lean, but the one song that I didn’t love would probably be 'Starlight', a slow ballad that is a welcome change up in the upbeat pop it has been throwing at you for the past 6 songs, but it is too repetitive and "slow" for its own good without enough interesting production to save it. 
+
+I absolutely think if you have any interest in Pop music you will like this album and it’s probably my easiest album to recommend that I have listened to so far. This album is only Twenty-Five Minutes has what I would call four absolute Bops, so it’s well worth your time!
