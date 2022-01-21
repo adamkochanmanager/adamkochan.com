@@ -17,7 +17,7 @@ _Note: I'll update these with the link to the review as they get listened to!_
 - [Parquet Courts - Wide Awake!](/posts/wide-awake-review)
 - DJ Sabrina The Teenage DJ - Charmed
 - [Lorde - Melodrama](/posts/melodrama-review)
-- [The National - Sleep Well Beast](/posts/sleep-well-beast-review]
+- [The National - Sleep Well Beast](/posts/sleep-well-beast-review)
 - [The War on Drugs - A Deeper Understanding](/posts/a-deeper-understanding-review)
 - George Clanton - Slide
 - [LOONA - Max & Match](/posts/max-and-match-review)
