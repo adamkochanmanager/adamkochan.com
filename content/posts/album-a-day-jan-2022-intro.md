@@ -30,7 +30,7 @@ _Note: I'll update these with the link to the review as they get listened to!_
 - D'Angelo - Black Messiah
 - tricot - Jodeki (上出来)
 - BADBADNOTGOOD - Talk Memory
-- Charli XCX - How I'm Feeling Now
+- [Charli XCX - How I'm Feeling Now](/posts/how-im-feeling-now-review)
 - Gorillaz - Plastic Beach
 - [Todd Terje - It's Album Time](/posts/its-album-time-review)
 - Fiona Apple - The Idler Wheel Is Wiser Than the Driver of the Screw and Whipping Cords Will Serve You More Than Ropes Will Ever Do
