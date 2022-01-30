@@ -10,7 +10,7 @@ _Note: I'll update these with the link to the review as they get listened to!_
 
 - Injury Reserve - By the Time I Get to Phoenix
 - Death Grips - The Money Store
-- Sufjan Stevens - Carrie & Lowell
+- [Sufjan Stevens - Carrie & Lowell](/posts/carrie-and-lowell-review)
 - [LCD Soundsystem - This is Happening](/posts/this-is-happening-review)
 - King Gizzard & The Lizard Wizard - Nonagon Infinity
 - [Bon Iver - 22, A Million](/posts/twenty-two-million)
@@ -31,7 +31,7 @@ _Note: I'll update these with the link to the review as they get listened to!_
 - tricot - Jodeki (上出来)
 - BADBADNOTGOOD - Talk Memory
 - [Charli XCX - How I'm Feeling Now](/posts/how-im-feeling-now-review)
-- Gorillaz - Plastic Beach
+- [Gorillaz - Plastic Beach](/posts/plastic-beach-review)
 - [Todd Terje - It's Album Time](/posts/its-album-time-review)
 - Fiona Apple - The Idler Wheel Is Wiser Than the Driver of the Screw and Whipping Cords Will Serve You More Than Ropes Will Ever Do
 - [Jeff Rosenstock - SKA Dream](/posts/ska-dream-review)
