@@ -10,7 +10,7 @@ Here is a list of Albums that I listened to in January and February. That are el
 
 ![list of albums](/images/jan_feb_albums.jpg#centerbig)
 
-If you just want to hear a Playlist of my favorite songs from these albums: [Check that Here]
+If you just want to hear a Playlist of my favorite songs from these albums: [Check that Here](https://open.spotify.com/playlist/6CvGbFZV9KWNVvUvsTQHu3?si=0b2c661cbf784052)
 
 # 5 Quick Fire Recommendations:
 
