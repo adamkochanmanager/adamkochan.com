@@ -40,7 +40,7 @@ Check Out: [00000 Million](https://open.spotify.com/track/2lJNtl3CiHlGlW9OJHftZo
 
 ## Parquet Courts– Wide Awake!
 
-![ParCourts Album](/images/Wide_Awake_Parquet_Courts.jpg#centerbig
+![ParCourts Album](/images/Wide_Awake_Parquet_Courts.jpg)
 The First Album of this whole process! A breakneck energy from start to finish that will have you wanting to join a mosh pit and scream along to the lyrics. An album that is normally not in my comfort zone, but even I can’t deny the tight production, mindful lyrics, and fun it sounds like they were having in the studio as they were making this.
 
 Check Out: [Almost Had to Start a Fight/In and Out of Patience](https://open.spotify.com/track/7xhZCVsVhDSjhFm41mOX10?si=ab1e1810a2a14243)
@@ -71,6 +71,8 @@ Check Out: [Death with Dignity](https://open.spotify.com/track/73uJybGAhwGRD9MZY
 ### 1st – Bon Iver – 00000 Million
 
 ## Album of the Month
+
+![Album of the Month](/images/best_album_jan.jpg)
 ### 3rd –  Charli XCX – how i’m feeling now
 ### 2nd – Sufjan Stevens – Carrie & Lowell
 ### 1st – Bon Iver – 22, A Million
