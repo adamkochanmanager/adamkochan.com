@@ -9,4 +9,4 @@ So this is still a work in progress but for sure I want to have all the differen
 Check Out my Monthly Recaps!
 
 2022:
-- [January/Febuary Recap](/music/recap/jan_feb_22_recap.md)
+- [January/Febuary Recap](/music/recap/jan_feb_22_recap)
