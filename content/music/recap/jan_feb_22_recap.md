@@ -11,7 +11,7 @@ Here is a list of Albums that I listened to in January and February. That are el
 ![list of albums](/images/jan_feb_albums.jpg#centerbig)
 
 If you just want to hear a Playlist of my favorite songs from these albums: [Check that Here](https://open.spotify.com/playlist/6CvGbFZV9KWNVvUvsTQHu3?si=0b2c661cbf784052)
-
+---
 # 5 Quick Fire Recommendations:
 
 ## BTS – The Most Beautiful Moment in Life: Young Forever
@@ -55,31 +55,35 @@ The album that just makes you want to lay down and contemplate death. Sufjan ble
 Check Out: [Death with Dignity](https://open.spotify.com/track/73uJybGAhwGRD9MZYrOmTY?si=d3412827a28e4232)
 
 # Awards!
-
+---
 ## Surprise of the Month
 
-![Surprise of the Month](/images/int_album_jan.jpg)
 ### 3rd –  Little Sims – Sometimes I Might Be Introvert
 ### 2nd – Bon Iver – 22, A Million
 ### 1st – Charlie XCX – How I’m Feeling Now
 
+![Surprise of the Month](/images/int_album_jan.jpg)
+---
 ## Disappointment of the Month
 
-![Disappointment of the Month](/images/dis_album_jan.jpg)
 ### 3rd –  Injury Reserve – By The Time I Get to Phoenix
 ### 2nd – The Comet Is Coming – Trust In The Lifeforce Of Deep Mystery 
 ### 1st – Gorillaz - Plastic Beach
 
+![Disappointment of the Month](/images/dis_album_jan.jpg)
+---
 ## Song of the Month
 
-![Song of the Month](/images/best_song_jan.jpg)
 ### 3rd –  Lorde – Green Light
 ### 2nd – The War on Drugs – Strangest Thing 
 ### 1st – Bon Iver – 00000 Million
 
+![Song of the Month](/images/best_song_jan.jpg)
+---
 ## Album of the Month
 
-![Album of the Month](/images/best_album_jan.jpg)
 ### 3rd –  Charli XCX – how i’m feeling now
 ### 2nd – Sufjan Stevens – Carrie & Lowell
 ### 1st – Bon Iver – 22, A Million
+
+![Album of the Month](/images/best_album_jan.jpg)
