@@ -4,4 +4,12 @@ type: page
 
 hey, i'm adam! this is my website! 
 
-you're probably here for the [blog](/posts) where I'm currently writing up album reviews.
+here you might see me talk about movies, tv shows, and music.
+
+[Interested in Music?](/music)
+
+[Interested in Movies?](/movies)
+
+[Interested in TV Shows?](/tvshows)
+
+[Grab Bag](/other)
