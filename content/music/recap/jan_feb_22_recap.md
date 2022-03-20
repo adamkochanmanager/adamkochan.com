@@ -52,3 +52,25 @@ Check Out: Almost Had to Start a Fight/In and Out of Patience
 
 The album that just makes you want to lay down and contemplate death. Sufjan blends AMAZING song writing with a very vulnerable look into how he is grieving his biological mother’s death. Between the emotions and the beautiful guitar playing, this one will make you feel and grieve along with him. So heartfelt.
 Check Out: Death with Dignity
+
+# Awards!
+
+## Surprise of the Month
+### 3rd –  Little Sims – Sometimes I Might Be Introvert
+### 2nd – Bon Iver – 22, A Million
+### 1st – Charlie XCX – How I’m Feeling Now
+
+## Disappointment of the Month
+### 3rd –  Injury Reserve – By The Time I Get to Phoenix
+### 2nd – The Comet Is Coming – Trust In The Lifeforce Of Deep Mystery 
+### 1st – Gorillaz - Plastic Beach
+
+## Song of the Month
+### 3rd –  Lorde – Green Light
+### 2nd – The War on Drugs – Strangest Thing 
+### 1st – Bon Iver – 00000 Million
+
+## Album of the Month
+### 3rd –  Charli XCX – how i’m feeling now
+### 2nd – Sufjan Stevens – Carrie & Lowell
+### 1st – Bon Iver – 22, A Million
