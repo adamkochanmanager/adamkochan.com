@@ -16,7 +16,7 @@ If you just want to hear a Playlist of my favorite songs from these albums: [Che
 
 ## BTS – The Most Beautiful Moment in Life: Young Forever
 
-![BTS Album](/images/bts-album.jpeg#centerbig)
+![BTS Album](/images/bts-album.jpeg)
 
 If you somehow have missed the boat so far on BTS and want to understand what all the hubbub is about (and how is there a man just called “V”?) this is the album for you. Super accessible, tons of bangers, jams, and bops across the whole. The production is top notch, and a big shout out to the Dope MV as well.
 
@@ -24,7 +24,7 @@ Check Out: [Dope](https://open.spotify.com/track/4o3Ao6wY5fbJR32fQKabfQ?si=c4bc9
 
 ## Charli XCX – how i’m feeling now
 
-![Charli Album](/images/how-im-feeling-now.jpg#centerbig)
+![Charli Album](/images/how-im-feeling-now.jpg)
 
 Guess I like hyperpop now *shurgs*. If you have heard of what a “100 gecs” is but have never dipped your toe into hyperpop landscape. The album has a driving energy thoughtout and has songs that make you want to go out to a club and some that make you want to wrap yourself in a blanket and miss your friends. I am now a Charli Stan.
 
@@ -32,7 +32,7 @@ Check Out: [forever](https://open.spotify.com/track/5GsJIVCBFjhCcUwJaTW2sB?si=db
 
 ## Bon Iver– 22, A Million
 
-![Bon Iver Album](/images/22-A-Million-Album.jpg#centerbig)
+![Bon Iver Album](/images/22-A-Million-Album.jpg)
 
 This is gonna be the most divisive out of the recommendation. This album was seemingly designed to not be listened to. The glitched out production, the song titles (“666 *upside down t*” is still my favorite), and the vibe of the album is definitely NOT accessible. But if you meet it half way, you have one of the best Singer Songwriter albums in the past decade and a enjoyable experience from top to Bottom.
 
@@ -40,15 +40,14 @@ Check Out: [00000 Million](https://open.spotify.com/track/2lJNtl3CiHlGlW9OJHftZo
 
 ## Parquet Courts– Wide Awake!
 
-![ParCourts Album](/images/Wide_Awake_Parquet_Courts.jpg#centerbig)
-
+![ParCourts Album](/images/Wide_Awake_Parquet_Courts.jpg#centerbig
 The First Album of this whole process! A breakneck energy from start to finish that will have you wanting to join a mosh pit and scream along to the lyrics. An album that is normally not in my comfort zone, but even I can’t deny the tight production, mindful lyrics, and fun it sounds like they were having in the studio as they were making this.
 
 Check Out: [Almost Had to Start a Fight/In and Out of Patience](https://open.spotify.com/track/7xhZCVsVhDSjhFm41mOX10?si=ab1e1810a2a14243)
 
 ## Sufjan Stevens – Carrie & Lowell
 
-![Suf Album](/images/Carrie_&_Lowell.jpg#centerbig)
+![Suf Album](/images/Carrie_&_Lowell.jpg)
 
 The album that just makes you want to lay down and contemplate death. Sufjan blends AMAZING song writing with a very vulnerable look into how he is grieving his biological mother’s death. Between the emotions and the beautiful guitar playing, this one will make you feel and grieve along with him. So heartfelt.
 
