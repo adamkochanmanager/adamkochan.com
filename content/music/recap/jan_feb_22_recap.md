@@ -16,7 +16,7 @@ If you just want to hear a Playlist of my favorite songs from these albums: [Che
 
 ## BTS – The Most Beautiful Moment in Life: Young Forever
 
-![BTS Album](/images/bts_album.jpg)
+![BTS Album](/images/bts_album.jpeg)
 
 If you somehow have missed the boat so far on BTS and want to understand what all the hubbub is about (and how is there a man just called “V”?) this is the album for you. Super accessible, tons of bangers, jams, and bops across the whole. The production is top notch, and a big shout out to the Dope MV as well.
 
@@ -48,7 +48,7 @@ Check Out: Almost Had to Start a Fight/In and Out of Patience
 
 ## Sufjan Stevens – Carrie & Lowell
 
-![Suf Album](/images/carrie-and-lowell.jpg)
+![Suf Album](/images/Carrie_&_Lowell.jpg)
 
 The album that just makes you want to lay down and contemplate death. Sufjan blends AMAZING song writing with a very vulnerable look into how he is grieving his biological mother’s death. Between the emotions and the beautiful guitar playing, this one will make you feel and grieve along with him. So heartfelt.
 Check Out: Death with Dignity
